@@ -124,8 +124,7 @@ How could I ever
 
 # Harrison
 ![harrison](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/b86d29f9-4f66-4c19-8c86-98b3e3493d54)
-Harrison! You have changed roles SO many times in my head. From a screaming baby, to a goofball who had the silliest catch-phrases, to a mini-me, and now, a mature and independant young man! 
-
+Harrison! You have changed roles SO many times in my head. From a screaming baby, to a goofball who had the silliest catch-phrases, to a mini-me, and now, a mature and independant young man! I want to take a minute and thank you for being such a cool person. I realize that you don't have to message me on Discord, play Minecraft with me and my friends, or even desire to be a part of my life. But you do, because you want to. You want to be involved in the crazyness that is my life, even if there are one and a half decades, and 2,500 miles between us. I notice that you often explore all the interests I am in, and you look for my footprints to mark your own path. To be honest, I find it confusing because I think to myself "Why follow in MY footsteps? I'm just barely figuring out how to do this whole 'living' thing at 29. You could do so much better by going ANY other direction." But I need to take a step back and realize that you are doing these things because you WANT to. So thank you. I hope I continue to make the choices that you feel are worthy to recreate. And please, whenever you find out my mistakes, do your best to learn from them, and don't recreate them. (Or just don't get caught) ;-P     I love you Harrison!
 ...
 
 ---
@@ -205,27 +204,26 @@ pic
 
 # Emma
 ![emma](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/dd3c00bf-5dec-4695-9e56-d112e7fbf6b2)
-
+Hi Emma! Its so awesome to see you again! Oh, all the memorable memories we had, and the experiances, and the times.   XD    No for real though, it is great to finally meet you. Thanks for coming! Make sure Abigayle doesn't get into too much trouble, please? ;D
 
 ---
 
 # Navneet
 ![navneet](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/44baf930-cbf6-43e2-8c3b-b8bf35f398ad)
-
+Navneet. 
 
 ---
 
 # Mo
 ![mo](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/c978c478-0702-4359-956b-4ce0aaea4a08)
-
-pic
+Mo!!! Congratulations, 2024 alumni! Woo!!!! We did it!!! Thank you for being a real one. You are the EXACT kind of person I wanted to surround myself with in my college experiance. Free-spirited, confident, a real stand-your-ground kind of person, who also is SO down to be involved in good times, and bad times. You trust people openly, wear your heart on your sleave, and express yourself when you want to, how you want to, %&@# what everyone else thinks. Seriously, you ROCK. I loved every single time we were involved in the same things, and I'm so happy that we were in the same group semester after semester. You have taught me to be a lot more socially aware, and that great connections can be made when everyone is just a litte bit more vulnerable and open. You might have also taught me that I don't know how to deal with finalities. I can't comprehend how this might be one of the last times we share the same space. I'm certainly not ready for it, and I'm doing by best to not even aknowledge it. Please, stay in touch? And if you're planning on staying in the Sacramento area, you BETTER keep joining in on the dinners. Thank you for impacting my life so much.
 
 ---
 
 # Abigayle
 ![abigayle](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/33503ab8-8882-4058-b3a7-d960588e52b2)
 
-pic
+Abigayle!  You are special to me. The time we spent in group feels so much longer than it actually has been. You have put forth so much effort to be a friend, a familiar face, a regular count-me-in kind of person, and as a result, you've become part of my CSUS family that I'm scared to leave. You have always cared about all of us from day 1, and you have personally trusted and taken an interest in my life that I hope you feel is recipricated. Your honesty, welcoming nature, and openness is something that won't be forgotten, and it's something I honestly look forward to every Friday. I hope the future semesters continue being blessed by your presnce. 
 
 ---
 
