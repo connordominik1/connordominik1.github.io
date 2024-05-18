@@ -1,29 +1,29 @@
----
+![image](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/89f2e96d-a6ae-4a9e-8f3a-a7c390502f5d)---
 title: Connor thanks YOU!
 ---
-Jump to your name:
+### Jump to your name:
 + [Grandma](#grandma)
-+ Mom
-+ Doran
-+ Zach
-+ Papa
-+ Harrison
-+ Lauren
-+ Shannon
-+ Rebecca
-+ Charlee
-+ Collin
-+ Juanita
-+ Felicity
-+ Max
-+ Julie
-+ Erica
-+ Rachel
-+ Abigayle
-+ Emma
-+ Navneet
-+ Mo
-+ Not Attending, but still recognized
++ [Mom](#mom)
++ [Doran](#doran)
++ [Zach](#zach)
++ [Papa](#papa)
++ [Harrison](#harrison)
++ [Lauren](#lauren)
++ [Shannon](#shannon)
++ [Rebecca](#rebecca)
++ [Charlee](#charlee)
++ [Collin](#collin)
++ [Juanita](#juanita)
++ [Felicity](#felicity)
++ [Max](#max)
++ [Julie](#julie)
++ [Erica](#erica)
++ [Rachel](#rachel)
++ [Abigayle](#abigayle)
++ [Emma](#emma)
++ [Navneet](#navneet)
++ [Mo](#mo)
++ [Not Attending, but still recognized](#and-many-more)
 
 
 
@@ -66,6 +66,75 @@ A [link](#),
 ---
 
 # Grandma
+...
+---
+# Mom
+...
+---
+# Doran
+...
+---
+# Zach
+...
+---
+# Papa
+...
+---
+# Harrison
+...
+---
+# Lauren
+...
+---
+# Shannon
+...
+---
+# Rebecca
+...
+---
+# Charlee
+...
+---
+# Collin
+...
+---
+# Juanita
+...
+---
+# Felicity
+...
+---
+# Max
+...
+---
+# Julie
+...
+---
+# Erica
+...
+---
+# Rachel
+...
+---
+# Emma
+...
+---
+# Navneet
+...
+---
+# Mo
+...
+---
+# Abigayle
+...
+---
+# And Many More
+...
+---
+
+
+
+
 ## h2 Heading
 ### h3 Heading
 #### h4 Heading
