@@ -2,7 +2,7 @@
 title: Connor thanks YOU!
 ---
 Jump to your name:
-+ [Grandma](#-grandma)
++ [Grandma](#grandma)
 + Mom
 + Doran
 + Zach
