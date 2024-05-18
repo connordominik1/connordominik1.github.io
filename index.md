@@ -11,7 +11,7 @@ title: Connor thanks YOU!
 
 ---
 
-Thank you to everyone, for taking time out of your lives to watch me graduate from California State University, Sacramento. After an embarisingly long 3 years and 8 months, I have earned a Batchelor of Science degree in Computer Science. I have also earned 2 certificates: a certificate in Information Assurance and Security, and a certificate in Cyber Defense and Operations. This accomplishment required a lot out of me, but it was made just a little bit easier by all of you. I hope your seats are comfy, and that your journey here was straightforward and stress-free. If not, hopefully the wonderful food, drink, and dessert we will have afterword will make up for some of it. Thank you for being here! Your presence seriously makes this day special to me.
+Thank you to everyone, for taking time out of your lives to watch me graduate from California State University, Sacramento. After an embarisingly long 3 years and 8 months (i know, i know... it's not a race), I have earned a Batchelor of Science degree in Computer Science. I have also earned 2 certificates: a certificate in Information Assurance and Security, and a certificate in Cyber Defense and Operations. This accomplishment required a lot out of me, but it was made just a little bit easier by all of you. I hope your seats are comfy, and that your journey here was straightforward and stress-free. If not, hopefully the wonderful food, drink, and dessert we will have afterword will make up for some of it. Thank you for being here! Your presence seriously makes this day special to me.
 
 ![connor](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/9b67d358-e055-47fd-9621-0311cdcd171e)
 
@@ -185,14 +185,14 @@ Felicity. Although I don't think I have done enough to be considered an older br
 # Max
 ![max](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/5922f57d-cae5-45cc-8941-1c465969f18a)
 
-pic
+Max Max Max! Thank you for being here. I love it when you are involved in things like this, and I want to see you more often! You are a super chill dude, and I like how effortlessly I can just be around you and chat and pass the time away. You are an individual who seems to really focus on the needs of others, and I appreciate all the unconditional care you have given not only to me, but everyone in our mutual family. You are the one who is quick to improve any vibe, with a joke, a pun, or just genuine affection and sillyness. I certainly took advantage of the hours we gamed together, where you still have a habit of putting the needs of others first. ;)   You helped me recharge and destress over these difficult semesters, and getting to this point in my life definitely would have been harder without you. Thank you for being an awesome person, and making an impact in my life. 
 
 ---
 
 # Julie
 ![julie](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/b81b258d-8ee6-4d1d-aa7e-99872562dafc)
 
-pic
+Julie! I can't beleive how fortunate I was to be able to meet you, and become such close friends. There so many life events that had to line up just perfectly for it all to happen, and I'm so glad this was the result. You have helped me stay sane, entertained, and happy during the hours that noone else was available for. Although your sleep schedule is much more healthy and appropriate now, I thuroughly enjoyed the midnight to 3:30 am conversations we had. We communicate so effortlessly, and both enjoy debating everything from the most mundane topics, to the deepest and life-defining. You absolutely helped me by being the late-night, and sometimes midday, sanity checker that I could trust with any kind of question, no matter how vulnerable. It means so much to me, to be able to engage in mentally stimulating and devicive topics, in such a neutral and exploratory way. It truely is rare to find someone like you, and because of this, you are a treasure to me. I'm glad you're here today to celebrate with me, because family should come together to congradulate accomplishments, and you are 100%, without a doubt, a member of my family. I love you Julie!
 
 ---
 
