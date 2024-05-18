@@ -2,7 +2,7 @@
 title: Connor thanks YOU!
 ---
 Jump to your name:
-+ link: [Grandma] (#-grandma)
++ [Grandma](#-grandma)
 + Mom
 + Doran
 + Zach
@@ -65,7 +65,7 @@ A [link](#),
 
 ---
 
-# h1 Grandma
+# Grandma
 ## h2 Heading
 ### h3 Heading
 #### h4 Heading
