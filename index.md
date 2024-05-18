@@ -5,7 +5,7 @@ title: Connor thanks YOU!
 
 <head>
     <meta charset="UTF-8">
-    <link rel="icon" type="image/x-icon" href="https://github.com/connordominik1/connordominik1.github.io/assets/114826469/b6119db3-00ef-4116-8f01-c623fe446426">
+    <link rel="icon" type="image/x-icon" href="https://github.com/connordominik1/connordominik1.github.io/assets/114826469/b6119db3-00ef-4116-8f01-c623fe446426?">
   </head>
 
 ---
