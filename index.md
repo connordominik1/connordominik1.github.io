@@ -98,7 +98,7 @@ You have provided me with memories of amazing vacations, Christmases, and the oc
 ---
 
 # Mom
-How could I ever
+How could I ever produce enough words to adequately express how much you have enabled my accomplishments? You're my mom! None of this could have happened without your support. What you have done for me goes well beyond what could be expected of a great mom. You have been a friend who supports every aspect of life, from financial to emotional, from spiritual to pholosophical, from shelter to encouragment. The years in which I earned this degree were the hardest years of my life, and at every step, you were concerned with how you could maximize the support you gave. There were many times where I needed sound advice, answers to life's big questions, intensive care due to sickness, and even physical rehab due to a leg fracture. At every point in my life, the only way I was to receive less care was if I explicitly asked for it. The default was an incredible amount of care, and you deserve recognition for it. There was never a question of where I would go or who to turn to for help. You would always do everything you could, and I felt so safe and fortunate because of it. You win the award for being the #1 supporter, by a landslide. There's absolute certainty that I wouldn't be earning this degree if it wasn't for you. You always encouraged me, and helped facilitate my pursuit of higher education. I could not, and would not have done all of this without you. Thank you mom. For everything. I love you SO SO SO much. 
 
 ---
 
@@ -115,6 +115,9 @@ How could I ever
 
 # Papa
 ![papa](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/93af1aab-cb77-49ae-8c5f-ae0cc84b2748)
+
+Papa
+
 
 ...
 
@@ -166,7 +169,7 @@ This is to Collin. Not Mark. No adjective or single phrase exclamation could acc
 
 Juanita!
 
-First of all, thank you SO much for taking the graduation pictues. Dang they are georgeous. I appretiate having a fellow university student to gossip with about terrible administration and terrible professors. It's crazy how your struggles match my own regardless of the different campus. I think we would have had a great time being roomates or neighbors and stufying together. Even when we aren't in study-mode, I have a great time with you. You have 
+First of all, thank you SO much for taking the graduation pictues. Dang they are georgeous. I appretiate having a fellow university student to gossip with about terrible administration and terrible professors. It's crazy how your struggles match my own regardless of the different campuses we attended. I think we would have had a great time being roomates or neighbors and studying together. Even when we aren't in study-mode, I have a great time with you. You plan such grand adventures for the entire group, and each and every has me creating such fond memories. You are the first person I know I can go to if I am in need of an any advice regarding photography, sewing, anything theater, media… really anything having to do with creativity, you already have the solution before the question is asked. The hospitality I enjoy when I am over at your place is remarkable, and the moment I leave is the moment I start hoping for the next visit. Thank you for being such a benefit to my life, and being here to celebrate with me today. 
 ...
 
 ---
