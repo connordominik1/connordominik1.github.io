@@ -155,6 +155,7 @@ Harrison! You have changed roles SO many times in my head. From a screaming baby
 
 # Collin
 ![collin](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/58f6a2d4-db10-4cbf-9bea-4a4fbf75bfc8)
+This is to Collin. Not Mark. No adjective or single phrase exclamation could accurately preface how much you mean to me, so I won't even start with one. We have known eachother forever. Counting the years doesn't even make sense anymore. You have helped me tremendously in getting me to this spot in my life. You certainly helped me academically... You gave me the points I 'earned' on those spelling tests decades ago. You helped me with countless hours of much-needed distraction and recharge from constant schoolwork. You helped me emotionally, when my mental health was spiraling and my ability to discern logic from feeling was nonexcistant. You helped me with personal safety and shelter, when I couldn't handle it on my own. You have helped me define a proper standard for what a respectable, accomplished peer looks like, and someone I should strive to one-up. You are someone who is directly tied to my accomplishments, wether you realize it or not. There are so many life paths that would have lead to a derastically different place than where I am today, if it wasn't for who you are as a person, and how important you have become to me. And you continue to nudge me into directions that can only lead to a more successful and happy life. You mean SO much to me, and deserve way more recognition for the things you have done than what can be shared here. From my entire heart and soul, thank you Collin. I love you dude.
 
 ...
 
@@ -170,7 +171,7 @@ Harrison! You have changed roles SO many times in my head. From a screaming baby
 # Felicity
 ![felicity](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/60c470ff-6d7e-4f39-963c-d6829ac7900d)
 
-pic
+Felicity. Although I don't think I have done enough to be considered an older brother, I certainly see you as a little sister. But also a peer, and a good friend? Despite the differences in age, distance, and life, I find it so refreshing to just chat with you about all things philosophical. You and I have shared similar chalanges in life, and as a result, have such an easy time checking-in with eachother and just getting to the deep and meaningful stuff without any kind of apprehention. I appreciate how often you look through people and their dismissive responses of "I'm tired", and how fast you swing back with "Okay, but how are you really?" You have helped me get here because of your emotional support, and your desire to put care and interest into my life and well-being. The trust and value you have put into my opinions and suggestions make me feel validated, and have made it feel like my ideas and past situations mean something. And every time I have been absolutely ded from school overload, and seek refuge in your part of California, the vibe you bring to every gathering is exactly what I need. The energy, the conversations, the opinions and conflics, it's all the perfect amount of stimulus that completly distracts me from the stress this place has caused me. Thank you for being here and celebrating with me.
 
 ---
 
@@ -229,7 +230,8 @@ Abigayle!  You are special to me. The time we spent in group feels so much longe
 
 # And Many More
 ...
-Link to other page.
+Ian, Vivian, Susan, Dillan, Ray, Grandpa, Olivia, Charles, Antonio, Andrew, Dustin, Elle, Jack, Deana, Mayra, Sean, Brandon, Abby, Emad, Laia, Ethan, Martha, Cathy, Becca, Daniel, Mack, and so many more have positively influenced me, and should be filling these seats too.
+
 ---
 
 
