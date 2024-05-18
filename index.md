@@ -9,49 +9,49 @@ I would like to recognize some people who have helped me arrive here, and remind
 ---
 
 ### Jump to your name:
-+ [Grandma](#grandma)
++ [Grandma](#grandma)\
 + 
-+ [Mom](#mom)
++ [Mom](#mom)\
 + 
-+ [Doran](#doran)
++ [Doran](#doran)\
 + 
-+ [Zach](#zach)
++ [Zach](#zach)\
 + 
-+ [Papa](#papa)
++ [Papa](#papa)\
 + 
-+ [Harrison](#harrison)
++ [Harrison](#harrison)\
 + 
-+ [Lauren](#lauren)
++ [Lauren](#lauren)\
 + 
-+ [Shannon](#shannon)
++ [Shannon](#shannon)\
 + 
-+ [Rebecca](#rebecca)
++ [Rebecca](#rebecca)\
 + 
-+ [Charlee](#charlee)
++ [Charlee](#charlee)\
 + 
-+ [Collin](#collin)
++ [Collin](#collin)\
 + 
-+ [Juanita](#juanita)
++ [Juanita](#juanita)\
 + 
-+ [Felicity](#felicity)
++ [Felicity](#felicity)\
 + 
-+ [Max](#max)
++ [Max](#max)\
 + 
-+ [Julie](#julie)
++ [Julie](#julie)\
 + 
-+ [Erica](#erica)
++ [Erica](#erica)\
 + 
-+ [Rachel](#rachel)
++ [Rachel](#rachel)\
 + 
-+ [Abigayle](#abigayle)
++ [Abigayle](#abigayle)\
 + 
-+ [Emma](#emma)
++ [Emma](#emma)\
 + 
-+ [Navneet](#navneet)
++ [Navneet](#navneet)\
 + 
-+ [Mo](#mo)
++ [Mo](#mo)\\
 + 
-+ [Not Attending, but still recognized](#and-many-more)
++ [Not Attending, but still recognized](#and-many-more)\
 
 ---
 
