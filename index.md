@@ -6,14 +6,16 @@ title: Connor thanks YOU!
 
 <head>
     <meta charset="UTF-8">
-    <link rel="icon" type="image/png" href="https://github.com/connordominik1/connordominik1.github.io/assets/114826469/b6119db3-00ef-4116-8f01-c623fe446426?">
+    <link rel="favicon" type="image/png" href="{{https://github.com/connordominik1/connordominik1.github.io/assets/114826469/b6119db3-00ef-4116-8f01-c623fe446426?}}">
   </head>
 
 ---
 
-I would like to recognize some people who have helped me arrive here, and remind each and every one of you that you are significant to me, in heart and in support.
+Thank you to everyone, for taking time out of your lives to watch me graduate from California State University, Sacramento. After an embarisingly long 3 years and 8 months, I have earned a Batchelor of Science degree in Computer Science. I have also earned 2 certificates: a certificate in Information Assurance and Security, and a certificate in Cyber Defense and Operations. This accomplishment required a lot out of me, but it was made just a little bit easier by all of you. I hope your seats are comfy, and that your journey here was straightforward and stress-free. If not, hopefully the wonderful food, drink, and dessert we will have afterword will make up for some of it. Thank you for being here! Your presence seriously makes this day special to me.
 
 ![connor](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/9b67d358-e055-47fd-9621-0311cdcd171e)
+
+I would like to recognize some people who have helped me arrive here, and remind each and every one of you that you are significant to me, in heart and in support.
 ---
 
 ### Jump to your name:
@@ -66,7 +68,7 @@ I would like to recognize some people who have helped me arrive here, and remind
 
 
 
-Thank you to everyone, for taking time out of your lives to watch me graduate from California State University, Sacramento. After an embarisingly long 3 years and 8 months, I have earned a Batchelor of Science degree in Computer Science. I have also earned 2 certificates: a certificate in Information Assurance and Security, and a certificate in Cyber Defense and Operations.
+
 
 ###Paragraph and Image
 ![Sample Image](sample-image.jpg?resize=100,100) {.pull-left}
