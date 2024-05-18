@@ -1,6 +1,33 @@
 ---
 title: Connor thanks YOU!
 ---
+Jump to your name:
++ Grandma
++ Mom
++ Doran
++ Zach
++ Papa
++ Harrison
++ Lauren
++ Shannon
++ Rebecca
++ Charlee
++ Collin
++ Juanita
++ Felicity
++ Max
++ Julie
++ Erica
++ Rachel
++ Abigayle
++ Emma
++ Navneet
++ Mo
++ Not Attending, but still recognized
+
+
+
+
 
 #Style Guide.
 At vero eos et accusamus et iusto odio dignissimos ducimus qui blanditipraesentium voluptatum
