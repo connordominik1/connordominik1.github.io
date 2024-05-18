@@ -1,11 +1,11 @@
 ---
 title: Connor thanks YOU!
----
+
 
 
 <head>
-    ...
-    <link rel="shortcut icon" type="image/png" href="favicon.png">
+    <meta charset="UTF-8">
+    <link rel="icon" href="data:image/svg+xml,<svg xmlns=%22http://www.w3.org/2000/svg%22 viewBox=%220 0 100 100%22><text y=%22.9em%22 font-size=%2290%22>🎓</text></svg>">
   </head>
 
 ---
@@ -15,7 +15,8 @@ I would like to recognize some people who have helped me arrive here, and remind
 ---
 
 ### Jump to your name:
-+ [Grandma](#grandma)    
++ [Grandma](#grandma)
+  
 + [Mom](#mom)    
   
 + [Doran](#doran)
@@ -54,7 +55,7 @@ I would like to recognize some people who have helped me arrive here, and remind
   
 + [Navneet](#navneet)
   
-+ [Mo](#mo)\
++ [Mo](#mo)
   
 + [Not Attending, but still recognized](#and-many-more)
 
