@@ -3,15 +3,17 @@ title: Connor thanks YOU!
 ---
 
 
+
 <head>
     <meta charset="UTF-8">
-    <link rel="icon" type="image/x-icon" href="https://github.com/connordominik1/connordominik1.github.io/assets/114826469/b6119db3-00ef-4116-8f01-c623fe446426?">
+    <link rel="icon" type="image/png" href="https://github.com/connordominik1/connordominik1.github.io/assets/114826469/b6119db3-00ef-4116-8f01-c623fe446426?">
   </head>
 
 ---
 
 I would like to recognize some people who have helped me arrive here, and remind each and every one of you that you are significant to me, in heart and in support.
 
+![connor](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/9b67d358-e055-47fd-9621-0311cdcd171e)
 ---
 
 ### Jump to your name:
