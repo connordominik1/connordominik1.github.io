@@ -1,4 +1,4 @@
-![image](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/89f2e96d-a6ae-4a9e-8f3a-a7c390502f5d)---
+---
 title: Connor thanks YOU!
 ---
 I would like to recognize some people who have helped me arrive here, and remind each and every one of you that you are significant to me, in heart and in support.
