@@ -1,11 +1,10 @@
 ---
 title: Connor thanks YOU!
 ---
-I would like to recognize some people who have helped me arrive here, and remind each and every one of you that you are significant to me, in heart and in support.
 
-does
-whitespace
-matter?
+---
+
+I would like to recognize some people who have helped me arrive here, and remind each and every one of you that you are significant to me, in heart and in support.
 
 ---
 
@@ -75,69 +74,128 @@ A [link](#),
 
 # Grandma
 ...
+
 ---
+
 # Mom
 ...
+
 ---
+
 # Doran
 ...
+
 ---
+
 # Zach
 ...
+pic![zach](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/c8652867-a7a9-4ca1-9ef1-0f625b612b06)
+
+
 ---
+
 # Papa
+pic
 ...
+
 ---
+
 # Harrison
+pic
 ...
+
 ---
+
 # Lauren
+pic
 ...
+
 ---
+
 # Shannon
+pic
 ...
+
 ---
+
 # Rebecca
 ...
+
 ---
+
 # Charlee
 ...
+
 ---
+
 # Collin
+pic
 ...
+
 ---
+
 # Juanita
+pic
 ...
+
 ---
+
 # Felicity
 ...
+pic
+
 ---
+
 # Max
 ...
+pic
+
 ---
+
 # Julie
 ...
+pic
+
 ---
+
 # Erica
+pic
 ...
+
 ---
+
 # Rachel
+pic
 ...
+
 ---
+
 # Emma
 ...
+
 ---
+
 # Navneet
 ...
+pic
+
 ---
+
 # Mo
 ...
+pic
+
 ---
+
 # Abigayle
 ...
+pic
+
 ---
+
 # And Many More
 ...
+Link to other page.
 ---
 
 
