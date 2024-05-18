@@ -4,7 +4,7 @@ title: Connor thanks YOU!
 
 <head>
     <meta charset="UTF-8">
-    <link rel="icon" href="data:image/svg+xml,<svg xmlns=%22http://www.w3.org/2000/svg%22 viewBox=%220 0 100 100%22><text y=%22.9em%22 font-size=%2290%22>🎓</text></svg>">
+    <link rel="icon" type="image/x-icon" href="https://github.com/connordominik1/connordominik1.github.io/assets/114826469/b6119db3-00ef-4116-8f01-c623fe446426">
   </head>
 
 ---
@@ -63,10 +63,7 @@ I would like to recognize some people who have helped me arrive here, and remind
 
 
 
-#Style Guide.
-At vero eos et accusamus et iusto odio dignissimos ducimus qui blanditipraesentium voluptatum
-deleniti atque corrupti quos dolores et quas molestias excepturi sint occaecati cupiditate.
-At vero eos et accusamus et iusto odio dignissimos ducimus qui blanditiis praesentium.
+Thank you to everyone, for taking time out of your lives to watch me graduate from California State University, Sacramento. After an embarisingly long 3 years and 8 months, I have earned a Batchelor of Science degree in Computer Science. I have also earned 2 certificates: a certificate in Information Assurance and Security, and a certificate in Cyber Defense and Operations.
 
 ###Paragraph and Image
 ![Sample Image](sample-image.jpg?resize=100,100) {.pull-left}
