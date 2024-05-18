@@ -166,7 +166,7 @@ This is to Collin. Not Mark. No adjective or single phrase exclamation could acc
 
 Juanita!
 
-First of all, thank you SO much for taking the graduation pictues. Dang they are georgeous. 
+First of all, thank you SO much for taking the graduation pictues. Dang they are georgeous. I appretiate having a fellow university student to gossip with about terrible administration and terrible professors. It's crazy how your struggles match my own regardless of the different campus. I think we would have had a great time being roomates or neighbors and stufying together. Even when we aren't in study-mode, I have a great time with you. You have 
 ...
 
 ---
