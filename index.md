@@ -2,6 +2,12 @@
 title: Connor thanks YOU!
 ---
 
+
+<head>
+    ...
+    <link rel="shortcut icon" type="image/png" href="favicon.png">
+  </head>
+
 ---
 
 I would like to recognize some people who have helped me arrive here, and remind each and every one of you that you are significant to me, in heart and in support.
@@ -9,49 +15,48 @@ I would like to recognize some people who have helped me arrive here, and remind
 ---
 
 ### Jump to your name:
-+ [Grandma](#grandma)\
-+ 
-+ [Mom](#mom)\
-+ 
-+ [Doran](#doran)\
-+ 
-+ [Zach](#zach)\
-+ 
-+ [Papa](#papa)\
-+ 
-+ [Harrison](#harrison)\
-+ 
-+ [Lauren](#lauren)\
-+ 
-+ [Shannon](#shannon)\
-+ 
-+ [Rebecca](#rebecca)\
-+ 
-+ [Charlee](#charlee)\
-+ 
-+ [Collin](#collin)\
-+ 
-+ [Juanita](#juanita)\
-+ 
-+ [Felicity](#felicity)\
-+ 
-+ [Max](#max)\
-+ 
-+ [Julie](#julie)\
-+ 
-+ [Erica](#erica)\
-+ 
-+ [Rachel](#rachel)\
-+ 
-+ [Abigayle](#abigayle)\
-+ 
-+ [Emma](#emma)\
-+ 
-+ [Navneet](#navneet)\
-+ 
-+ [Mo](#mo)\\
-+ 
-+ [Not Attending, but still recognized](#and-many-more)\
++ [Grandma](#grandma)    
++ [Mom](#mom)    
+  
++ [Doran](#doran)
+  
++ [Zach](#zach)
+  
++ [Papa](#papa)
+  
++ [Harrison](#harrison)
+  
++ [Lauren](#lauren)
+  
++ [Shannon](#shannon)
+  
++ [Rebecca](#rebecca)
+  
++ [Charlee](#charlee)
+  
++ [Collin](#collin)
+  
++ [Juanita](#juanita)
+  
++ [Felicity](#felicity)
+  
++ [Max](#max)
+  
++ [Julie](#julie)
+  
++ [Erica](#erica)
+  
++ [Rachel](#rachel)
+  
++ [Abigayle](#abigayle)
+  
++ [Emma](#emma)
+  
++ [Navneet](#navneet)
+  
++ [Mo](#mo)\
+  
++ [Not Attending, but still recognized](#and-many-more)
 
 ---
 
