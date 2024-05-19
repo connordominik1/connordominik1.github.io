@@ -142,7 +142,7 @@ You are an amazing sister, and you have always been. I remember playing with you
 
 Charlee!
 
-Honesty. Sharing. Openness. Personal interest. Patience. Work ethic. Personal value. 
+I love that you’re here. You are such an honest, open, and inclusive person. Whenever people are over at your place, you always make an effort to talk to everyone, and make sure everyone is comfortable. I love that about you. You are so willing to talk about anything, and you have taken a real interest in me and where I intend to take myself in this crazy life. You bring a relaxed atmosphere with you wherever you go, and I have a feeling we could definitely get along if we were stranded on an island together. ;-D  I appreciate you being here today and celebrating with me. 
 
 ---
 
