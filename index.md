@@ -113,14 +113,15 @@ You have been a major support in my entire life, and esspecially in my pursuit o
 Harrison!
 
 You have changed roles SO many times in my head. From a screaming baby, to a goofball who had the silliest catch-phrases, to a mini-me, and now, a mature and independent young man! I want to take a minute and thank you for being such a cool person. I realize that you don't have to message me on Discord, play Minecraft with me and my friends, or even desire to be a part of my life. But you do, because you want to. You want to be involved in the craziness that is my life, even if there are one and a half decades, and 2,500 miles between us. I notice that you often explore all the interests I am in, and you look for my footprints to mark your own path. To be honest, I find it confusing because I think to myself "Why follow in MY footsteps? I'm just barely figuring out how to do this whole 'living' thing at 29. You could do so much better by going ANY other direction." But I need to take a step back and realize that you are doing these things because you WANT to. So, thank you. I hope I continue to make the choices that you feel are worthy to recreate. And please, whenever you find out my mistakes, do your best to learn from them, and don't recreate them. (Or just don't get caught) ;-P     I love you, Harrison!
-...
 
 ---
 
 # Lauren
 ![lauren](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/a4006404-56c6-4a20-b0c4-2d32532391d0)
 
-...
+Lauren!
+
+Whatie? You're here?? But I'm a fartie, so you didn't have to be! ;-D  How's it hanging sista? Thank you for being such an awesome little sis. I want you to know I still have all of the artwork you have given me. Even the wrapping paper you customized. In fact, I'm holding it right now, as I type this. I won't ever forget all of the silliness and joy you bring wherever you go. My most recent memory is when Zach, Harrison, you, and I wrote that absolutely perfect story. In the story, the mean girls and their powerful duty were absolutely destroying a city. When you are a famous artist, I expect you to recreate that story with pictures on every page. Actually, draw it now! The story needs to be shared with the world. :)   I enjoy having you around Lauren, because you always make any visit into a perfect one. I know you don't have much control over being able to visit me as often as you would like to, so I need to make the effort and come to you more often. I want to see those ice-skating skills, and I want to have all the artwork, and I want to play more VR golf with you. You are special to me, and I'm so happy that you choose to include me in the things you like. <3     I love you, Lauren!
 
 ---
 
@@ -134,7 +135,10 @@ The level of support that came from you was astounding. You were under no social
 ---
 
 # Rebecca
-...
+
+Rebecca!!
+
+Fan. Cash register. Amanda, Angela. The sims. Road Trip. Ribbit King. Runescape. Neopets. Miniclip. Biking FAR. Get-in-trouble Far. The fair. Hamsters. 
 
 ---
 
@@ -143,7 +147,7 @@ The level of support that came from you was astounding. You were under no social
 
 Charlee!
 
-
+Honesty. Sharing. Openness. Personal interest. Patience. Work ethic. Personal value. 
 
 ---
 
