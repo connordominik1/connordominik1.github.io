@@ -74,6 +74,7 @@ How could I ever produce enough words to adequately express how much you have en
 ---
 
 # Doran
+![doran](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/5549bac5-2cff-42fa-9722-09f9708da730)
 
 Doran.
 
@@ -130,6 +131,7 @@ The level of support that came from you was astounding. You were under no social
 ---
 
 # Rebecca
+![rebecca](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/442ef85c-62dc-49d5-b494-c43548429652)
 
 Rebecca!!
 
