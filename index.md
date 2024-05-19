@@ -99,8 +99,6 @@ Papa
 
 You have been a major support in my entire life, and esspecially in my pursuit of higher education. It was always one of the major pushes: get to the Scout rank of 'Eagle Scout', and get a degree. Perhaps this was already fulfilled with my associates degree? Well oops! I have a batchelors now too! Throughout my education, it was important for all of your kids to seek improvement. I vividly remember my struggles in elemntary school, spending hours and hours at the kitchen table, struggling with math assignments. It was tough. I also remember hearing about the parents of my classmates, who would ground their children if they ever brought home a 'B'. My situation was different. Instead of using punishment and fear tacktics to 'scare' children into performing better, you offered a reward. If I could bring home straight C's, I would get a crisp $100. And oh boy, was that one of the hardest things I ever worked for at that age. But it worked. I finally performed at a level most people would consider 'barely passing'. All of this is to say that you were a major contributer of academic challaenege in my life. The D's meant that I had to try harder, and the B's could become A's, as long as I tried harder. The finish line was never the final goal, as a high school deploma was quickly followed by enrollment at a community college, and today, I have earned this batchelors. I doubt I would have done so if it wasn't for you. So, thank you for the pushes that helped me discover what my limits are, and which ones can be overcome. I love you, Papa.
 
-...
-
 ---
 
 # Harrison
@@ -163,7 +161,6 @@ This is to Collin. Not Mark. No adjective or single phrase exclamation could acc
 Juanita!
 
 First of all, thank you SO much for taking the graduation pictures. Dang they are gorgeous. I appreciate having a fellow university student to gossip with about terrible administration and terrible professors. It's crazy how your struggles match my own regardless of the different campuses we attended. I think we would have had a great time being roommates or neighbors and studying together. Even when we aren't in study-mode, I have a great time with you. You plan such grand adventures for the entire group, and each and every has me creating such fond memories. You are the first person I know I can go to if I am in need of an any advice regarding photography, sewing, anything theater, media… really anything having to do with creativity, you already have the solution before the question is asked. The hospitality I enjoy when I am over at your place is remarkable, and the moment I leave is the moment I start hoping for the next visit. Thank you for being such a benefit to my life, and being here to celebrate with me today. 
-...
 
 ---
 
