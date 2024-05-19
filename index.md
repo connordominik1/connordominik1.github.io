@@ -133,7 +133,7 @@ The level of support that came from you was astounding. You were under no social
 
 Rebecca!!
 
-Fan. Cash register. Amanda, Angela. The sims. Road Trip. Ribbit King. Runescape. Neopets. Miniclip. Biking FAR. Get-in-trouble Far. The fair. Hamsters. 
+You are an amazing sister, and you have always been. I remember playing with you for so many years, from a little kid playing with the toy cash register, to playing RuneScape, Neopets, and the Sims. I cherished the times that we biked that bike path, and beyond, eventually crossing very busy streets and making it all the way to Doran’s shop. I remember always tagging along with you at the State Fair, it was all amazing. You are a real friend, sister, and a great person.  I cherish you, and this family would not be the same without your kindness, without your love, and without your texts checking in on everybody. I love you, Rebecca!!!
 
 ---
 
