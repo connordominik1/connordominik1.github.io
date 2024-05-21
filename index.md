@@ -104,6 +104,7 @@ You have been a major support in my entire life, and especially in my pursuit of
 ---
 
 # Ian
+![E20803C4-C302-481A-8EDA-493583441A9A](https://github.com/connordominik1/connordominik1.github.io/assets/114826469/cc46f16f-722f-4952-bc91-10e55db75436)
 
 
 Ian. 
