@@ -20,6 +20,8 @@ I would like to recognize some people who have helped me arrive here, and remind
 + [Zach](#zach)
   
 + [Papa](#papa)
+
++ [Ian](#ian)
   
 + [Harrison](#harrison)
   
@@ -98,6 +100,24 @@ What is there to say, other than you're THE big brother? The majority of the fin
 Papa
 
 You have been a major support in my entire life, and especially in my pursuit of higher education. It was always one of the major pushes: get to the Scout rank of ‘Eagle Scout’ and get a degree. Perhaps this was already fulfilled with my associates degree? Well, oops! I have a bachelor's now too! Throughout my education, it was important for all of your kids to seek improvement. I vividly remember my struggles in elementary school, spending hours and hours at the kitchen table, struggling with math assignments. It was tough. I also remember hearing about the parents of my classmates, who would ground their children if they ever brought home a ‘B’. My situation was different. Instead of using punishment and fear tactics to ‘scare’ children into performing better, you offered a reward. If I could bring home straight C’s, I would get a crisp $100. And oh boy, was that one of the hardest things I ever worked for at that age. But it worked. I finally performed at a level most people would consider ‘barely passing’. All of this is to say that you were a major contributor of academic challenge in my life. The D’s meant that I had to try harder, and the B’s could become A’s, as long as I tried harder. The finish line was never the final goal, as a high school diploma was quickly followed by enrollment at a community college, and today, I have earned this bachelor’s degree. I doubt I would have done so if it wasn’t for you. So, thank you for the pushes that helped me discover what my limits are, and which ones can be overcome. I love you, Papa
+
+---
+
+# Ian
+
+
+Ian. 
+
+Wether you know it or not, you were instrumental in my attainment of this degree. I followed closely in your footsteps throughout my years in public education. I remember in high school; Zach took on the intimidating and crazy difficult IB program. You took on what I thought was much more approachable, a few AP classes along side General ed classes. Because of you, I took AP Earth Science and had an absolute blast. It helped that you left a positive impact on the teacher, and I rode that wave of good reputation. In fact, a lot of the teachers responded positively to my presence because of the reputation you earned. 3rd grade, 6th grade, the yearbook teacher in 8th grade, and the science teacher in 12th. You have been helping me this whole time without realizing it, and I really appreciate it. Just like Zach, you also had a task that I know I didn’t make easy on you: making sure I was ready for school. I vividly remember you throwing stuffed animals at me to wake me up for elementary school, and then coming out of the shower with me still in bed, usually sleeping again. I know I caused you quite a bit of trouble with my stubbornness. But it never seemed to tarnish our relationship. You never got fed up with me being difficult, and deep down, you always kept me in your care. Of course, there were squabbles and arguments, and I remember after a particularly challenging disagreement, I went outside to cool off and remove myself. Despite us being unhappy with each other, you still went outside to bring me inside, as you were concerned with the cold temperature outside. Even when frustrated with me, you still cared a lot. 
+
+
+You were also the one closest to my age, experiencing the same challenges. So, every question I had regarding my journey of growing up, went to you. Girls, puberty, education goals, life goals, everything was fielded through you. You were the one I was comfortable with, who I emulated, who I knew had life experience and would be patient with my questions. And I love you SO much for that. Zach was living in a more mature age bracket, and none of my friends had a similar lifestyle. You were my number one when it came to growing up, and you were the one showing me the way through school. 
+
+
+Even in the realm of friendships, you had my back. Sure, i had Collin, and occasionally Patrick. But you always had so many more friends coming over to the house. Every single time people were over there for you, you made sure I was having a blast too. You could have made the annoying little brother go play somewhere else, or just been less interested in my involvement. Instead, I was always in the rotation for the video games. Halo, Golden Eye, Medal of Honor, CTR… you made sure I got a turn and that no one was ganging-up on me. I remember you even taught me how to do the sword-cancels and how to enter the cheat codes. You were invested in how I was perceived by your friends, and as a result, your friends quickly became my friends. Morgan, Ricky, P-Man, Charles, Thomas… all of these people never would have been in my social circle if it wasn’t for you and what you have done for me. 
+
+
+Ian, you have always cared about my physical health, my social health, and my emotional health. I never asked for any of this, and it shows just how great of a person you are. You mean an incredible amount to me, and it goes without saying that you are an unmeasurably great influence in my life. You didn’t have a chance to make my bachelor’s degree easier for me, but you did something even better. You made my entire life easier. This accomplishment I am celebrating would not have happened if you weren’t in my life. Thank you, Ian. I love you SO much, and I wish to personally thank you for being my brother. You’re the best. <3
 
 ---
 
