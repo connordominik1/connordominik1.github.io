@@ -263,6 +263,6 @@ You are special to me. The time we spent in group feels so much longer than it a
 
 # And Many More
 
-Ian, Justin, Molly, Vivian, Susan, Dillan, Ray, Olivia, Charles, Antonio, Andrew, Dustin, Elle, Jack, Navneet, Deana, Mayra, Sean, Brandon, Abby, Emad, Laia, Ethan, Martha, Cathy, Becca, Daniel, Mack, and so many more have positively influenced me, and should be filling these seats too. If you see them, let them know that I appreciate having them in my life, and that I thought of them as I was walking this stage.
+Justin, Molly, Vivian, Susan, Dillan, Ray, Olivia, Charles, Antonio, Andrew, Dustin, Elle, Jack, Navneet, Deana, Mayra, Sean, Brandon, Abby, Emad, Laia, Ethan, Martha, Cathy, Becca, Daniel, Mack, and so many more have positively influenced me, and should be filling these seats too. If you see them, let them know that I appreciate having them in my life, and that I thought of them as I was walking this stage.
 
 ---
